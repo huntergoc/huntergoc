@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @huntergoc
+- 👋 Hi, I’m @huntershop
 - 👀 I’m interested in ... Programming , Intelligence and defeat communists
 - 🌱 I’m currently learning ... programming and counter terrorism
 - 💞️ I’m looking to collaborate on ...
